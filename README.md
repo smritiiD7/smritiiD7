@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @smritiiD7
-- 👀 I’m interested in watching web series, movies, reading.
+- 👀 I’m interested in problem solving, watching movies, web series and reading.
 - 🌱 I’m currently learning to improve my problem solving skills.
 - 📫 How to reach me on linkedIn: https://www.linkedin.com/in/smriti-dubey-3572b51a1/
           
